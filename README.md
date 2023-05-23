@@ -3,10 +3,9 @@
 - Thank you very much for downloading this product! Hope you have fun!
 - If you are interested in recieving updates join the community here at **[Discord](https://discord.gg/marcinhu)**! |
 
-# Preview
-
 # About
 - Optimized
+- 3 Types of kevlar
 
 # Install Steps:
 
